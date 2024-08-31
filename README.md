@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **praharsh2004.official@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11qbBeoW9uEzCU2gbH6Qlr5kgy2ctm7NE/view?usp=sharing](https://drive.google.com/file/d/11qbBeoW9uEzCU2gbH6Qlr5kgy2ctm7NE/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11qbBeoW9uEzCU2gbH6Qlr5kgy2ctm7NE/view?usp=sharing](https://drive.google.com/file/d/1eTK1VNOLtJ29Z6yefP4U43UPtEj95G8X/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
